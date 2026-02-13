@@ -12,6 +12,6 @@ ethical and scientific considerations.
 includes bilingual and remote consent processes.
 
 • Ensured compliance with 45 CFR 46, HIPAA, ICH-GCP, and the ethical guidelines for research involving human
-subjects. 6. Strengthen
+subjects.
 
 • Strengthened my clinical research ethics, regulatory writing and project leaderships skills through out the project.
